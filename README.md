@@ -1,0 +1,1 @@
+# ShuichiSyad.github.io
